@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Html,Java,CSS,C++**
 
-- 📫 How to reach me **gurudutta.pradhan.07@gmail.com**
+- 📫 How to reach me **gurudutta355@gmail.com**
 
 - ⚡ Fun fact **Coding is my side hobby**
 
